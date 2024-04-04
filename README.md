@@ -20,6 +20,7 @@ OG, но снаружи младенец (вау)
 Пока ещё живы, все будет красиво
 Как завещал Saint Laurent (Yves Saint)
 ![image](https://github.com/kamiq1337/kamiq1337/assets/165278490/9c20e0fe-d222-4bf4-b4ad-ae826cf94d24)
+![image](https://github.com/kamiq1337/kamiq1337/assets/165278490/9cf18789-ac68-4f4a-94c6-9ef77460c4ae)
 
 
 
