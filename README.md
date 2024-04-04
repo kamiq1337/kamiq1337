@@ -1,4 +1,4 @@
-\\\\\telegram bot developer in python\\\\\
+\\\\\telegram bot developer in python\\\\\\
 Каждый день новый контракт (каждый день)
 Они строчат нам в ВКонтакт' (это так)
 Ты хочешь быть с нами, но флексишь лишь тем
@@ -19,6 +19,7 @@ OG, но снаружи младенец (вау)
 Мы пишем московский роман (пишем)
 Пока ещё живы, все будет красиво
 Как завещал Saint Laurent (Yves Saint)
-![image](https://github.com/kamiq1337/kamiq1337/assets/165278490/01c58416-5368-46b9-b869-f7e02e1200ac)
+![image](https://github.com/kamiq1337/kamiq1337/assets/165278490/9c20e0fe-d222-4bf4-b4ad-ae826cf94d24)
+
 
 
